@@ -1,0 +1,1 @@
+![publico objetivo](buyer_persona.png)
